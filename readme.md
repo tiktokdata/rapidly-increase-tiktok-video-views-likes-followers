@@ -1,4 +1,4 @@
-# Increase Your TikTok Videos' Views Quicklt!
+# Increase Your TikTok Videos' Views Quickly!
 Use python codes to increase your videos' views, likes or followers.
 It is not a dream to push your videos to hot video pools so that more and more people could watch them!
 
